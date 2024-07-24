@@ -1,0 +1,1 @@
+savarankiskas darbas 1
